@@ -12,15 +12,15 @@
 
 ## 🎶 Mi Playlist & Música
 La música es parte fundamental de mi día. Mis géneros y artistas favoritos son:
-*   **K-pop:** (Amo el ritmo y la estética 🇰🇷)
-*   **R&B:** (Para vibras más relajadas 🎧)
+*   **K-pop:** (Amo grupos como Straykids, Twice, Enhypen y BlackPink)
+*   **R&B:** 
 *   **Artista Top:** **Milo J** 🎤 
     *   *Puedes escuchar su música en [Spotify](open.spotify.com)*
 
 ---
 
 ## 🏐 Deporte y Entretenimiento
-*   **Volleyball:** Es mi deporte favorito, ¡me encanta estar en la cancha! 🏐
+*   **Volleyball:** Es mi deporte favorito, y mi equipo favorito es el de japon 🏐
 *   **Cine:** Soy muy fan de las **películas de terror**. Me gusta la emoción y el suspenso. 🍿👻
 
 ---
